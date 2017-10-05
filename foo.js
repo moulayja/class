@@ -1,1 +1,1 @@
-// everything is fucked up over here
+this course is taughjt by Umedjon Ibrahimov the man with 3 citizenships
